@@ -1,2 +1,0 @@
-# EliQiQI.github.io
-index
